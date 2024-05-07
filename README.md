@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CamEd-CBR
 - 👀 I’m interested in collaborating with international repositories or databases that can help to enhance the discoverability of my journal.
-- 🌱 I’m currently seeking to get my  journal indexed or endorsed by international databases. 
+- 🌱 I’m currently seeking to get my  journal indexed in or endorsed by international databases. 
 - 💞️ I’m looking to collaborate with any interested respositories or databases.
 - 📫 Reach me at cbr@cam-ed.com
 - 😄 Journal: Journal of Accounting, Finance, Economics, and Social Sciences (JAFESS)
